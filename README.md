@@ -128,7 +128,7 @@ Busco una oportunidad como **Desarrollador de Software Junior**, donde pueda apl
 
 ## 📫 Contacto
 
-📧 **Email:** tu-correo
+📧 **Email:** aguasangel97@gmail.com
 
 💻 **GitHub:**  
 https://github.com/angelgabriel213
